@@ -1,3 +1,0 @@
-# justtry
-
-business projects
